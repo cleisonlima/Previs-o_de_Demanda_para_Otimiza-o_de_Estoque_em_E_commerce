@@ -1,0 +1,1 @@
+# Previs-o_de_Demanda_para_Otimiza-o_de_Estoque_em_E_commerce
